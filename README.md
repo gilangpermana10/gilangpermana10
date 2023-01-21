@@ -6,6 +6,7 @@ How you can reach me :
 - 📸 Instagram : @Gilangpermanaid & @gilang_permana080102 
 - 📮 Email : Gilangpermanaid@gmail.com
 - 🏀 Dribbble : gip_design_id
-- 
+- LinkedIn : Gilang Permana
+- Behance : Gilangpermana11
 
 
