@@ -9,4 +9,4 @@ How you can reach me :
 - LinkedIn : Gilang Permana
 - Behance : Gilangpermana11
 
-
+  https://github-readme-stats.vercel.app/api?username=gilangpermana10&show_icons=true&theme=tokyonight
